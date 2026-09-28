@@ -1,145 +1,215 @@
-<h1 align="center">Oi, eu sou a Rafa 👋</h1>
+# Rafaella Crepaldi
 
-<h3 align="center">Estratégia de conteúdo · Social Media · Storytelling</h3>
+### Comunicação | Conteúdo | Social Media | Marketing de Influência
 
-<p align="center">
-  Transformo marcas em histórias que as pessoas querem acompanhar.
-</p>
+Profissional de Comunicação com **mais de 7 anos de experiência**, atuando com planejamento editorial, estratégia de conteúdo, Social Media, redação, campanhas, comunicação digital e marketing de influência.
 
-<p align="center">
-  <a href="https://679cb6e40df54.site123.me/">🌐 Portfólio</a> ·
-  <a href="COLE-AQUI-O-LINK-DO-SEU-LINKEDIN">💼 LinkedIn</a> ·
-  <a href="COLE-AQUI-O-LINK-DO-SEU-SUBSTACK">✍️ Substack</a> ·
-  <a href="mailto:rafaellabermal3@gmail.com">📬 E-mail</a>
-</p>
+Experiência na criação de conteúdos para diferentes formatos, públicos e canais, desde a construção da pauta e estratégia até a produção, publicação, acompanhamento de resultados e relacionamento com stakeholders.
 
 ---
 
-## ✨ Um pouquinho sobre mim
+# Portfólio
 
-Sou profissional de Comunicação e Marketing com **mais de 7 anos de experiência** em estratégia de conteúdo, social media e comunicação digital. Trabalho com planejamento editorial, campanhas, storytelling, marketing de influência e análise de métricas.
+## Redes Sociais — Instagram
 
-Sou apaixonada por **livros, escrita, cultura e arte**, e acredito que toda boa estratégia começa com uma boa narrativa. 📚
+Seleção de conteúdos desenvolvidos para redes sociais, envolvendo criação de pautas, estratégias de comunicação, redação e diferentes formatos de conteúdo.
 
-📍 São Paulo – SP
-🎓 Pós-graduada em Comunicação Digital e Redes Sociais · Bacharel em Relações Públicas
-🌎 Inglês avançado · Espanhol intermediário
+- [Conteúdo 01](https://www.instagram.com/p/DQm84eUDb39/?stkn=cXVxcnkyZmxjbWNs)
+- [Conteúdo 02](https://www.instagram.com/p/DRdBvz1jNOl/?stkn=MWQ2OHRmdzI5dTNvcg==)
+- [Conteúdo 03](https://www.instagram.com/p/DSBEvp9jAbs/?stkn=MW55OGh4d2E2Y21mYQ==)
+- [Conteúdo 04](https://www.instagram.com/p/DRNk3Fcks3e/?stkn=NnoxbXppa2MyeGs2)
+- [Reel 01](https://www.instagram.com/reel/C3QziCpsZqn/?stkn=MXJpZWZkMm91eTVydQ==)
+- [Reel 02](https://www.instagram.com/reel/Ct9uXaQpTaQ/?stkn=M2lyZmtqaG5hamx5)
+- [Conteúdo 05](https://www.instagram.com/p/DcyU4RUFLW8/?stkn=MTc0dDc1M205enhsOQ==)
+- [Conteúdo 06](https://www.instagram.com/p/DctA4y6HzIX/?stkn=cmJ0bGRvcXV2cWY4)
+- [Reel 03](https://www.instagram.com/reel/DdB4a33iXbY/?stkn=OHoydWdidmRqZ3Jy)
+- [Conteúdo 07](https://www.instagram.com/p/DbLRmVuEwZw/?stkn=MTNoaDBwbm1qeHFpNg==)
+- [Conteúdo 08](https://www.instagram.com/p/DcweKg8Ctwp/?stkn=MTRxY2h2NzdpNWN3cw==)
+- [Conteúdo 09](https://www.instagram.com/p/Dc3mx9yitVI/?stkn=MWVuYmNncG04dmhndg==)
+- [Conteúdo 10](https://www.instagram.com/p/Dc_VItXk9gT/?stkn=bWE1cnA5MDdrc3Zr)
+- [Conteúdo 11](https://www.instagram.com/p/DdB56nrCnUr/?stkn=MWMwMW9ocGw3ZXJkag==)
+- [Conteúdo 12](https://www.instagram.com/p/DdDKt2aIHRg/?stkn=MXdqenJrc2k0cmVyOQ==)
+- [Conteúdo 13](https://www.instagram.com/p/DdoxmT-DOow/?stkn=MXU0OWJ1NXJ5cWhoaA==)
+- [Reel 04](https://www.instagram.com/reel/DdjoRDllbUH/?stkn=djY2eTgwMW10NmVo)
+- [Conteúdo 14](https://www.instagram.com/p/Ddb2MDiDL5x/?stkn=MTM4aXV0Z3Y4OXA2cQ==)
+- [Conteúdo 15](https://www.instagram.com/p/DdZRc1ol880/?stkn=MXN6dWhpcGlnd2I4MA==)
+- [Conteúdo 16](https://www.instagram.com/p/DdEudFVlJQt/?stkn=MTM1NWcxNTRxMmozaQ==)
 
----
+## Redes Sociais — X/Twitter
 
-## 🎯 O que eu faço
+- [Conteúdo Cuponomia 01](https://x.com/cuponomia/status/1962621487044567155)
+- [Conteúdo Cuponomia 02](https://x.com/cuponomia/status/1940050715076157873)
+- [Conteúdo Cuponomia 03](https://x.com/cuponomia/status/1927832249598165268)
 
-- 🗓️ **Planejamento editorial**: calendários, pautas e planos de conteúdo que fazem sentido para marca e público
-- 📱 **Social media**: gestão de Instagram, TikTok, YouTube, LinkedIn e X
-- 🎬 **Roteiros**: foco em retenção, estratégia de conteúdo e storytelling
-- ✍️ **Copy e redação**: legendas, textos, briefings e artigos
-- 🤝 **Marketing de influência**: prospecção, negociação, briefing e análise de resultados
-- 📊 **Métricas e otimização**: relatórios e leitura de dados para decidir os próximos passos
-- 💸 **Conteúdo impulsionado**: planejamento e acompanhamento de campanhas de mídia paga
+## LinkedIn
 
----
+- [Conteúdo 01](https://lnkd.in/p/dCexkzkn)
+- [Conteúdo 02](https://lnkd.in/p/dYna2cVB)
+- [MIO Vinci Compass — conteúdo 01](https://www.linkedin.com/posts/mio-vinci-compass_o-h%C3%A1bito-que-pode-impedir-voc%C3%AA-de-vender-activity-7509325983401897984-0mE3)
+- [MIO Vinci Compass — conteúdo 02](https://www.linkedin.com/posts/mio-vinci-compass_miovincicompass-vincicompass-previdaeancia-activity-7509236723252469760-2rEq)
+- [MIO Vinci Compass — conteúdo 03](https://www.linkedin.com/posts/mio-vinci-compass_vincicompass-miovincicompass-previdaeancia-activity-7508601232496795650-3JSl)
 
-## 📈 Resultados que me orgulham
+## Roteiros para YouTube
 
-| Onde | Resultado |
-|------|-----------|
-| Cuponomia | **+30%** na base de seguidores do Instagram |
-| Cuponomia | **+20%** de engajamento com estratégias de conteúdo |
+Experiência na criação de roteiros para conteúdos de comparação, análise de produtos, custo-benefício e intenção de compra.
 
----
+- [As 5 MELHORES GELADEIRAS para comprar em 2026 (Custo-Benefício REAL!)](https://www.youtube.com/watch?v=Fx8roI2l50E)
+- [Melhores Tênis de Corrida 2025: Asics Gel-Nimbus 27 vs Olympikus Corre 4 | Qual Vale Mais a Pena?](https://www.youtube.com/watch?v=co7A77S-5Us)
+- [As 5 MELHORES GELADEIRAS para comprar na Black Friday 2025 (Custo-Benefício REAL!)](https://www.youtube.com/watch?v=xNhnJWOVmys)
+- [TV 4K LG UA85: O MELHOR Custo-Benefício de 2025? | Análise Completa](https://www.youtube.com/watch?v=fM3iC6U0HHg)
+- [Os 3 Melhores SSDs NVMe Custo-Benefício de 2025 | O MELHOR Upgrade para seu PC ou PS5](https://www.youtube.com/watch?v=eniaAFsRpwM)
+- [Moto G75 vs G56 — Comparativo](https://www.youtube.com/watch?v=l0VcCw9N0QA)
 
-## 💼 Trajetória
+## Textos e conteúdo editorial
 
-| Período | Empresa | Cargo |
-|---------|---------|-------|
-| Mai/2026 – hoje | **Performa Web** | Analista de Redes Sociais Pleno |
-| Mar/2025 – Jan/2026 | **Cuponomia** | Analista de Comunicação Pleno |
-| Out/2023 – Mar/2025 | **Cuponomia** | Analista de Comunicação Jr II |
-| Mar/2022 – Out/2023 | **Cuponomia** | Assistente de Mídias Sociais Jr |
-| Jan/2022 – Mar/2022 | **Original 123 Comunicação** | Assistente de Comunicação |
-| Abr/2021 – Jan/2022 | **Original 123 Comunicação** | Estágio em Comunicação |
-| Jul/2019 – Jul/2020 | **Secretaria de Cultura do Estado de SP** | Estágio em Comunicação |
+Seleção de conteúdos desenvolvidos para diferentes temas e formatos editoriais:
 
----
+- **Como se aposentar nos EUA e outros países**
+- **Cloud computing: a tecnologia que permite que arquivos sejam armazenados na nuvem**
+- **OSESP: conheça a história desse importante marco de São Paulo**
+- **Bitcoins e o Banco Central: o futuro das moedas digitais**
+- **Intercâmbio nos Estados Unidos: 5 passos para a sua viagem**
+- **7 plantas que vão te ajudar a sair de cima do muro**
+- **Organizações culturais na pandemia**
 
-## 🎨 Portfólio em destaque
-
-### 🎬 Roteiros
-Projetos de roteirização com foco em estratégia de conteúdo, retenção e storytelling:
-
-Criação de roteiros e estratégias de comunicação para vídeos de reviews, comparativos e análises de produtos (geladeiras, tênis de corrida, SSDs, celulares e TV 4K).
-
-- ▶️ [As 5 melhores geladeiras para comprar em 2026 (custo-benefício real!)](https://www.youtube.com/watch?v=Fx8roI2l50E)
-- ▶️ [Melhores tênis de corrida 2025: Asics Gel-Nimbus 27 vs Olympikus Corre 4](https://www.youtube.com/watch?v=co7A77S-5Us)
-- ▶️ [As 5 melhores geladeiras para comprar na Black Friday 2025](https://www.youtube.com/watch?v=xNhnJWOVmys)
-- ▶️ [Os 3 melhores SSDs NVMe custo-benefício de 2025: o melhor upgrade para seu PC ou PS5](https://www.youtube.com/watch?v=fM3iC6U0HHg)
-- ▶️ [Moto G75 vs G56: comparativo](https://www.youtube.com/watch?v=l0VcCw9N0QA)
-- ▶️ [TV 4K LG UA85: o melhor custo-benefício de 2025? Análise completa](https://www.youtube.com/watch?v=eniaAFsRpwM)
-
-### 📝 Textos & Artigos
-Textos para blogs, sites e plataformas digitais:
-
-- *How to retire in the USA and other countries*
-
-<!-- TODO: adicionar os outros artigos e os links -->
-
-### 📱 Social Media
-Criação de pautas, estratégias de comunicação e redação para redes sociais e campanhas digitais.
-
-<details>
-<summary>📸 <b>Instagram</b> · 16 posts e 4 reels</summary>
-
-<br>
-
-**Posts:**
-[1](https://www.instagram.com/p/DQm84eUDb39/) · [2](https://www.instagram.com/p/DRdBvz1jNOl/) · [3](https://www.instagram.com/p/DSBEvp9jAbs/) · [4](https://www.instagram.com/p/DRNk3Fcks3e/) · [5](https://www.instagram.com/p/DcyU4RUFLW8/) · [6](https://www.instagram.com/p/DctA4y6HzIX/) · [7](https://www.instagram.com/p/DbLRmVuEwZw/) · [8](https://www.instagram.com/p/DcweKg8Ctwp/) · [9](https://www.instagram.com/p/Dc3mx9yitVI/) · [10](https://www.instagram.com/p/Dc_VItXk9gT/) · [11](https://www.instagram.com/p/DdB56nrCnUr/) · [12](https://www.instagram.com/p/DdDKt2aIHRg/) · [13](https://www.instagram.com/p/DdoxmT-DOow/) · [14](https://www.instagram.com/p/Ddb2MDiDL5x/) · [15](https://www.instagram.com/p/DdZRc1ol880/) · [16](https://www.instagram.com/p/DdEudFVlJQt/)
-
-**Reels:**
-[1](https://www.instagram.com/reel/C3QziCpsZqn/) · [2](https://www.instagram.com/reel/Ct9uXaQpTaQ/) · [3](https://www.instagram.com/reel/DdB4a33iXbY/) · [4](https://www.instagram.com/reel/DdjoRDllbUH/)
-
-</details>
-
-<details>
-<summary>🐦 <b>X (Cuponomia)</b> · 3 posts</summary>
-
-<br>
-
-[Post 1](https://x.com/cuponomia/status/1962621487044567155) · [Post 2](https://x.com/cuponomia/status/1940050715076157873) · [Post 3](https://x.com/cuponomia/status/1927832249598165268)
-
-</details>
-
-<details>
-<summary>💼 <b>LinkedIn</b> · 5 posts</summary>
-
-<br>
-
-[Post 1](https://lnkd.in/p/dCexkzkn) · [Post 2](https://lnkd.in/p/dYna2cVB) · [Post 3](https://www.linkedin.com/posts/mio-vinci-compass_o-h%C3%A1bito-que-pode-impedir-voc%C3%AA-de-vender-activity-7509325983401897984-0mE3) · [Post 4](https://www.linkedin.com/posts/mio-vinci-compass_miovincicompass-vincicompass-previdaeancia-activity-7509236723252469760-2rEq) · [Post 5](https://www.linkedin.com/posts/mio-vinci-compass_vincicompass-miovincicompass-previdaeancia-activity-7508601232496795650-3JSl)
-
-</details>
-
-<!-- TODO: quando tiver, adicionar estudos de caso (marca, objetivo, o que foi feito, resultado) ou o link do repositório de cases -->
+[Portfólio de textos](https://679cb6e40df54.site123.me/)
 
 ---
 
-## 🧰 Ferramentas
+# O que eu faço
 
-**Gestão e métricas:** Meta Business Suite · Google Analytics · RD Station · Reportei · Mlabs
-**Monitoramento e influência:** BuzzMonitor · Mundo Mapping · Influency.me
-**Criação e publicação:** Canva · Photoshop · WordPress
+## Estratégia de conteúdo
+
+- Planejamento editorial e criação de calendários de conteúdo
+- Criação de pautas e estratégias de comunicação
+- Pesquisa e curadoria de temas
+- Desenvolvimento de conceitos e narrativas
+- Redação, copy e roteiros
+- Conteúdos para diferentes formatos e canais
+- Análise de público, desempenho e KPIs
+
+## Social Media
+
+Experiência com planejamento, produção, publicação e acompanhamento de conteúdos para:
+
+**Instagram · Facebook · TikTok · YouTube · LinkedIn · X/Twitter**
+
+Atuação com conteúdo orgânico e mídia paga, monitoramento, relatórios, relacionamento com comunidades e apresentação de resultados.
+
+## Marketing de Influência
+
+Experiência com **mais de 50 influenciadores**, de micro, médio e grande porte, em campanhas para Instagram e YouTube.
+
+Atuação em:
+
+- Prospecção e curadoria de influenciadores
+- Negociação de cachês, permutas e comissões
+- Briefings
+- Acompanhamento e aprovação de conteúdos
+- Relacionamento com criadores e agências
+- Acompanhamento de métricas e resultados
+- Campanhas com influenciadores de diferentes segmentos, incluindo beleza, moda e lifestyle
+- Campanhas como Black Friday
 
 ---
 
-## 📚 Sempre aprendendo
+# Experiência profissional
 
-- Pós-graduação em Comunicação Digital e Redes Sociais, Anhembi Morumbi (2023–2024)
-- Bacharelado em Relações Públicas, FECAP (2018–2021)
-- Artificial Intelligence Fundamentals, IBM
-- Copywriting para Redes Sociais, Domestika
-- SEO e Marketing de Conteúdo, Santander Open Academy
-- Marketing na prática para editoras e autores, Udemy
+## Performa Web
+**Analista de Redes Sociais Pleno | Mai/2026 – atual**
+
+Atuação com uma carteira de **5 clientes**, desenvolvendo estratégias de Social Media e conteúdo.
+
+- Planejamento editorial e calendários de conteúdo
+- Criação de pautas, briefings e roteiros
+- Desenvolvimento de conteúdos para diferentes formatos
+- Impulsionamento e mídia paga
+- Monitoramento de métricas e KPIs
+- Elaboração de relatórios
+- Apresentação de resultados para clientes e stakeholders
+- Prospecção de criadores e interface com agências de influência
+- Uso de Inteligência Artificial no planejamento e desenvolvimento de conteúdos
+
+## Cuponomia
+**Analista de Comunicação Pleno | Mar/2025 – Jan/2026**
+
+**Analista de Comunicação Jr II | Out/2023 – Mar/2025**
+
+**Assistente de Mídias Sociais Jr | Mar/2022 – Out/2023**
+
+Atuação em Comunicação, Social Media, conteúdo, relacionamento com comunidade e marketing de influência.
+
+- Planejamento de calendários e conteúdos para redes sociais
+- Criação de copy e conteúdos para diferentes formatos
+- Gestão de comunidade e atendimento ao público
+- Monitoramento orgânico e mídia paga
+- Acompanhamento de métricas, KPIs e resultados
+- Criação de dashboards e relatórios
+- Prospecção, negociação e gestão de influenciadores
+- Desenvolvimento de briefings e acompanhamento de conteúdos
+- Gestão de campanhas com influenciadores
+- Comunicação interna, e-mails e revista digital
+- Atuação em Instagram, YouTube, LinkedIn, X/Twitter e e-mail marketing
+
+## Original 123 Comunicação
+**Estágio em Comunicação | Abr/2021 – Jan/2022**
+
+**Assistente de Comunicação | Jan/2022 – Mar/2022**
+
+- Criação de conteúdos para redes sociais
+- Atualização de sites institucionais em WordPress
+- SEO
+- Assessoria de imprensa
+- Mailing e relacionamento com jornalistas
+- Produção e acompanhamento de releases
+
+## Secretaria de Cultura do Estado de São Paulo
+**Estágio em Comunicação | Jul/2019 – Jul/2020**
+
+- Produção de conteúdos institucionais
+- Apoio à comunicação de eventos presenciais e online
+- Organização de fluxos de comunicação
+- Atividades relacionadas à imprensa
 
 ---
 
-## 📬 Vamos conversar?
+# Formação
 
-Se você gosta de boas histórias, conteúdo com estratégia e marcas com voz própria, vamos trocar uma ideia. Me encontre no [LinkedIn](COLE-AQUI-O-LINK-DO-SEU-LINKEDIN) ou leia meus textos no [Substack](COLE-AQUI-O-LINK-DO-SEU-SUBSTACK). ☕
+**Pós-graduação em Comunicação Digital e Redes Sociais**
+
+**Bacharelado em Relações Públicas**
+
+**Formação Técnica em Nutrição**
+
+**Marketing na prática para editoras e autores — Udemy**
+
+---
+
+# Ferramentas
+
+**Social Media & Análise:**  
+Meta Business · Meta Ads · Google Analytics · GA4 · Reportei · Mlabs · BuzzMonitor
+
+**Marketing & Comunicação:**  
+RD Station · Mailchimp · WordPress · Influency.me · Mundo Mapping
+
+**Planejamento & Gestão:**  
+Notion · Trello · Asana · Google Sheets · Excel
+
+**Criação:**  
+Figma · Photoshop · Canva
+
+**Mídia:**  
+Google Ads
+
+---
+
+# Contato
+
+**LinkedIn:** [linkedin.com/in/rafaella-crepaldi](https://linkedin.com/in/rafaella-crepaldi)
+
+**Portfólio:** [Acessar portfólio de textos](https://679cb6e40df54.site123.me/)
+
+---
+
+### Comunicação estratégica, conteúdo e criatividade orientados a objetivos.
